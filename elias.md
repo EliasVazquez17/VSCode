@@ -1,1 +1,0 @@
-Listooo ya sabes usar vscode mogolicooo
